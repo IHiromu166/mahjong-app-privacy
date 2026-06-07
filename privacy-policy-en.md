@@ -45,5 +45,5 @@ This Privacy Policy may be updated as necessary. If significant changes are made
 
 If you have any questions or comments regarding this Privacy Policy, please contact us at:
 
-- Email: (※ enter your public contact email here)
+- Email: yarioru1995@gmail.com
 - Developer: yarioru
